@@ -6,6 +6,7 @@
 
 #### Places to Go
 - Scheley Park
+- CMU
 
 #### Fun Facts
 - Hometown of Andy Wharhol.
