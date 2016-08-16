@@ -2,6 +2,7 @@
 
 #### Places to Eat
 - Primanti Bros
+- Hokkaido Sushi
 
 #### Places to Go
 - Scheley Park
