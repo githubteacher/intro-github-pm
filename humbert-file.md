@@ -8,3 +8,4 @@
 
 ### Fun Facts
 - This is a small sleepy town
+- I was born there!!
