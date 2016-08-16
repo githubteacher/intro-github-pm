@@ -6,6 +6,7 @@
 
 #### Places to Go
 - Balboa Park
+- Legoland (2nd Commit)
 
 #### Fun Facts
 - San Diego was the main filming site for Top Gun. 
