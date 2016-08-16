@@ -6,6 +6,7 @@
 
 #### Places to Go
 - beach
+- some other cool stuff
 
 #### Fun Facts
 - hometown of teddy roosevelt

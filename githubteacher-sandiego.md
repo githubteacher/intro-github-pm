@@ -6,7 +6,7 @@
 
 #### Places to Go
 - Balboa Park
-- Sea World
+- San Diego Zoo
 
 #### Fun Facts
 - San Diego was the main filming site for Top Gun.

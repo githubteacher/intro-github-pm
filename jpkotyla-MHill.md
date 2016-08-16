@@ -10,3 +10,5 @@
 
 #### Fun Facts
 - No gas station in this town!
+- No more fun fax
+
