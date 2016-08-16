@@ -1,7 +1,7 @@
 ## Beijing
 
 #### Places to Eat
-- many
+- many...
 
 #### Places to Go
 
