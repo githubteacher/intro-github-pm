@@ -6,7 +6,8 @@
 
 #### Places to Go
 - beach
-- some other cool stuff
+- bayville / centre island beach
+
 
 #### Fun Facts
 - hometown of teddy roosevelt
