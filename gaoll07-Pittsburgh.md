@@ -6,6 +6,7 @@
 
 #### Places to Go
 - Scheley Park
+- Pitt
 
 #### Fun Facts
 - Hometown of Andy Wharhol.
