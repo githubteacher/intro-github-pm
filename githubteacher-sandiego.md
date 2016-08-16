@@ -2,6 +2,7 @@
 
 #### Places to Eat
 - City Tacos (North Park)
+- Sushi N Joy
 
 #### Places to Go
 - Balboa Park
